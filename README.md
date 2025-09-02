@@ -1,8 +1,7 @@
-LITETOTO SITUS RESMI NO1 DI ASIA
-JACKPOT BESAR TANPA POLA 
-MEMBER BARU PASTI WD
+SITUS BANDA SLOT MUDAH MENANG SAAT INI DI TAHUN 2025 !
 
-<!--
+litetoto kini hadir dengan game seru yang pastinya mudah jackpot
+dan LITETOTO sekarang sudah collaborasi dengan Mortal Kombat Shaolink MonkS tentunya
 **litetoto33/litetoto33** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
